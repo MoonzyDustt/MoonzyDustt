@@ -4,4 +4,5 @@
 </p>
 
                 - SAmeme ruitiein DONT COPY XP and go look at my sociaals >:3
+                - I like MurderDrones-Dandys world- TADC- BATIM- HH-HB- Invader zim- Undertale- fnaf- and ect or js ask me!!
                 I usually have all my stuff about me in my other socials so its not going to be very long here but HiIIEIEI!! i lov u dia :heart:
