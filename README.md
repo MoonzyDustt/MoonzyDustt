@@ -1,8 +1,4 @@
-     - 𖦹 - My naems UZIIZI and im super suilly you can int as anyone im not picky!! also ask fdor inspo when takign some stiuff of f my ponys ^ _^
+     - ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ - 
 <p align="center">
-<img src="https://i.pinimg.com/736x/0a/83/92/0a83923ce588fff15efb579e2ae49e75.jpg"/>
+<img src="https://i.pinimg.com/736x/14/07/a1/1407a1f46e54b158399cc1bc0b16f960.jpg"/>
 </p>
-
-                - SAmeme ruitiein DONT COPY XP and go look at my sociaals >:3
-                - I like MurderDrones-Dandys world- TADC- BATIM- HH-HB- Invader zim- Undertale- fnaf- and ect or js ask me!!
-                I usually have all my stuff about me in my other socials so its not going to be very long here but HiIIEIEI!! i lov u dia :heart:
