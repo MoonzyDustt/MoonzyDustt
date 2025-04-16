@@ -2,4 +2,6 @@
 <p align="center">
 <img src="https://i.pinimg.com/736x/14/07/a1/1407a1f46e54b158399cc1bc0b16f960.jpg"/>
 </p>
-![](https://komarev.com/ghpvc/?username=moonzydustt&color=e7199a&label=☆+prof+views+)
+<p>
+<(https://komarev.com/ghpvc/?username=MoonzyDustt&color=e7199a&label=☆+prof+views+)>
+</p>
