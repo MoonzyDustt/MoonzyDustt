@@ -4,4 +4,4 @@
 </p>
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=moonzydustt&color=e7199a&label=☆+prof+views+) ![.]
+![](https://komarev.com/ghpvc/?username=moonzydustt&color=a63337&label=☆+prof+views+)
