@@ -8,4 +8,4 @@
 </p>
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=moonzydustt&color=a63337&label=☆+prof+views+)
+![](https://komarev.com/ghpvc/?username=moonzydustt&color=7E18F7FF&label=☆+prof+views+)
